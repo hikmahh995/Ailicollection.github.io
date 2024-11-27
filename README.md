@@ -1,0 +1,2 @@
+# Ailicollection.github.io
+landingpageailicollection
